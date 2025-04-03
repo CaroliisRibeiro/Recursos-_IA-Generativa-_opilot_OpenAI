@@ -1,0 +1,1 @@
+# Recursos-_IA-Generativa-_opilot_OpenAI
